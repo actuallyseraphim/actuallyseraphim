@@ -1,6 +1,6 @@
 **About Me**
 
-i'm 16 with 8+ years of experience, unfortunately, didn't have an active github, because didn't need it (and I'm shy). my primary language is c, secondary is everything else
+i'm 17 with 9+ years of experience, unfortunately, didn't have an active github, because didn't need it (and I'm shy). my primary language is c, secondary is everything else
 
 
 **programming hobbies are:**
@@ -17,6 +17,6 @@ i'm 16 with 8+ years of experience, unfortunately, didn't have an active github,
 * bad stuff
 * capital letters
 
-also i'm a usual suspect🏳️‍🌈🏳️‍⚧️
+also i'm the usual suspect🏳️‍🌈🏳️‍⚧️
 
 :3
